@@ -1,1 +1,6 @@
 # my-notes
+
+### about me 
+- 
+-
+-
